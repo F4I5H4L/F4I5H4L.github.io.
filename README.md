@@ -1,0 +1,2 @@
+# repositorypertama
+awal_awal
